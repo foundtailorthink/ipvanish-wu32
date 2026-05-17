@@ -1,10 +1,10 @@
-VIP IPVanish Extensión | soporte multiprotocolo + IP dedicada es el mejor IPVanish extensión con soporte multiprotocolo y IP dedicada. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ipvanish-wu32/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
