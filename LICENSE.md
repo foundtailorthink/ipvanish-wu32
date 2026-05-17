@@ -1,10 +1,10 @@
-VIP IPVanish امتداد | دعم متعدد البروتوكولات + IP مخصص هو أفضل IPVanish امتداد مع دعم متعدد البروتوكولات و IP مخصص. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/ipvanish-wu32/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
