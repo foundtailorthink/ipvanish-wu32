@@ -1,4 +1,4 @@
-
+VIP IPVanish Extension | support multi-protocole + IP dédiée est le meilleur IPVanish extension avec support multi-protocole et IP dédiée. Sécurisé et optimisé.
 
 
 
